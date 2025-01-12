@@ -127,7 +127,7 @@ From startups to large enterprises, Typeform offers a versatile tool that enhanc
 
 I hope you have saved well on your plan and enjoyed the amazing forms on your website.
 
-Using the **Typeform promo code** is an excellent way to access premium features and enhance your data collection efforts without breaking the bank. Whether you're a small business, non-profit, educational institution, or a large corporation, taking advantage of these discounts can provide significant value.
+Using the **[Typeform promo code for saving upto 67%](https://type.coupons/)** is an excellent way to access premium features and enhance your data collection efforts without breaking the bank. Whether you're a small business, non-profit, educational institution, or a large corporation, taking advantage of these discounts can provide significant value.
 
 Stay informed about the latest promotions, combine offers for maximum savings, and enjoy all that Typeform has to offer at a fraction of the cost. Start exploring Typeform today and see how these savings can benefit your projects and initiatives.
 
